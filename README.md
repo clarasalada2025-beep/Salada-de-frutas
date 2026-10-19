@@ -1,4 +1,4 @@
-## Hi there 👋
+## salada de frutas de segunda a sexta em Lagoa Grande do MA
 
 <!--
 **clarasalada2025-beep/clarasalada2025-beep** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
